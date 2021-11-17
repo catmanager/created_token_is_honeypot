@@ -1,3 +1,5 @@
+## Please add me as an Agent Developer [Published] on Discord, my discord username is catmanager#2401
+
 # IS Honeyspot token
 
 ## Description
